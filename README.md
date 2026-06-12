@@ -1,1 +1,1 @@
-# prin-wongtima
+# RMUTL🎓trader&Market learner📊📈 self devolopment🔥 problem solving🧠 Develop technological skills💻
